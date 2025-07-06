@@ -7,4 +7,4 @@
 
 > “Eat. Sleep. Code. Repeat.”
 
-[LinkedIn](https://www.linkedin.com/in/rajkumarsingh7060/) • [Portfolio](https://github.com/Rajkumarsingh0011)
+[LinkedIn](https://www.linkedin.com/in/rajkumarsingh7060/)
